@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ana250484
+@ana250484
 - Expandir na área de TI
 - Formação em linceciatura em Matemática
 - 💞️ I’m looking to collaborate on ...
